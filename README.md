@@ -4,6 +4,8 @@ https://www.slideshare.net/zeeshanhanif/spring-web-mvc
 
 http://media.techtarget.com/tss/static/articles/content/AgileJavaDev/SpringMVC.pdf
 
+30days
+cardview <-> list view
 
 mystery of love
 from now on
