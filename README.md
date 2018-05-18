@@ -2,28 +2,6 @@
  https://svn.fujinet.net:8603/svn/PJ-SPDI-201610-0001_LABO/trunk/97_SourceCode/Tippin/Android
  
  <brochure>
- https://www.freepik.com/free-vector/professional-brochure-for-multipurpose-business_1538873.htm
- https://www.freepik.com/free-vector/flat-business-brochure-in-a5-size_1956548.htm
- https://www.freepik.com/free-vector/green-business-brochure-template_1107137.htm
- https://www.freepik.com/free-vector/colorful-wavy-trifold-business-flyer_1923757.htm
- https://www.freepik.com/free-vector/vector-business-flyer-designs_1617516.htm
- https://www.freepik.com/free-vector/professional-business-flyer-template_1844674.htm
- https://www.freepik.com/free-vector/triptych-of-abstract-business-forms_1253660.htm
- https://www.freepik.com/free-vector/abstract-design-brochure-template_1505112.htm
- https://www.freepik.com/free-vector/brochure-template-design_1078827.htm
- https://www.freepik.com/free-vector/modern-blue-trifold-brochure-template_1851992.htm
- https://www.freepik.com/free-vector/business-brochure-in-a5-size-with-flat-style_1875237.htm
- https://www.freepik.com/free-vector/modern-blue-trifold-brochure-template_1851992.htm
- https://www.freepik.com/free-vector/blue-corporate-business-brochure_1765524.htm
- https://www.freepik.com/free-vector/abstract-business-brochure-template_1794952.htm
- https://www.freepik.com/free-vector/purple-and-turquoise-business-brochure-design_1844667.htm
- https://www.freepik.com/free-vector/abstract-modern-business-flyer-template_1844673.htm
- https://www.freepik.com/free-vector/professional-brochure-for-multipurpose-business_1538870.htm
- https://www.freepik.com/free-vector/business-brochure-template-with-pink-circle-shapes_1256716.htm
- https://www.freepik.com/free-vector/flat-business-brochure-in-a5-size_1956575.htm
- https://www.freepik.com/free-vector/creative-business-brochure-template_1794948.htm
- https://www.freepik.com/free-vector/business-brochure-with-flat-style_1832273.htm
- https://www.freepik.com/free-vector/modern-creative-business-brochure-template_1794958.htm
- https://www.freepik.com/free-vector/abstract-business-brochure_1131970.htm
- https://www.freepik.com/free-vector/abstract-business-brochure-in-a5-size_1957522.htm
- https://www.freepik.com/free-vector/flat-business-brochure-in-a5-size_1956582.htm
+https://design.tutsplus.com/tutorials/how-to-design-a-stylish-kids-magazine-in-adobe-indesign--cms-25331
+ 
+ https://www.shutterstock.com/image-vector/layout-brochure-template-cover-magazine-design-764763787
