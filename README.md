@@ -1,5 +1,1 @@
-
- https://svn.fujinet.net:8603/svn/PJ-SPDI-201610-0001_LABO/trunk/97_SourceCode/Tippin/Android
- 
-http://wall.rimbuz.com/coffee-wallpaper-background-hd/
-
+https://docs.google.com/document/d/1-I08qX76DgSFyN1ByIGtPuqXh7bVKraHcNIA25tpAzE/edit#
