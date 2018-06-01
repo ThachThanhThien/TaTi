@@ -39,5 +39,7 @@ https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwim1u
   play football bg, teamwork
   
   Boss
+https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjrz5GkobLbAhWK6Y8KHW1yCUUQjRx6BAgBEAU&url=https%3A%2F%2Fwww.123rf.com%2Fphoto_66560956_stock-vector-cute-funny-businessman-at-work-with-tie-on-the-yellow-background-business-and-office-cartoon-vector-.html&psig=AOvVaw0Qq5tTUv780csLiJZxhKyi&ust=1527935448094780
 
+https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwiU6aSvobLbAhWJrY8KHf0YCGYQjRx6BAgBEAU&url=https%3A%2F%2Fwww.shutterstock.com%2Fimage-vector%2Fcute-funny-businessman-work-tie-on-510924127&psig=AOvVaw0Qq5tTUv780csLiJZxhKyi&ust=1527935448094780
 
