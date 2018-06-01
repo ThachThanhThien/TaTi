@@ -30,3 +30,14 @@ https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjK76
 https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwim1uO2uLHbAhVGto8KHd1EDB0QjRx6BAgBEAU&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F822821794389247613%2F&psig=AOvVaw2CCoaBhLWj0TjIKN4BKKM5&ust=1527907313388557
 
 
+
+
+<magazine>
+  Coffee watercolor 
+  
+  funny, young, working background
+  play football bg, teamwork
+  
+  Boss
+
+
