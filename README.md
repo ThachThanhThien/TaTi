@@ -1,6 +1,3 @@
-so tay 
-http://phuchoangngoc.vn/bai-viet/837-van-hoa-phuc-hoang-ngoc.html
-
 tap chi
 
 typo
@@ -12,31 +9,6 @@ https://www.freepik.com/free-vector/business-magazine-cover-template-with-photo_
 https://www.freepik.com/free-vector/marketing-magazine-template_2425053.htm
 
 
+https://www.google.com.vn/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwj7s9Sr1oncAhXKMI8KHSS3BNgQjRx6BAgBEAU&url=http%3A%2F%2Fdaphnemaia.com%2Fmagazine-layout-design%2Fmagazine-layout-design-inspirational-interior-design-magazine-articles-iowa-architect-magazine-layout%2F&psig=AOvVaw2bceLQRZoWnjPZUmDxmIh2&ust=1530938140459389
 
 
-truyện KTX
-
-https://www.freepik.com/free-vector/hand-drawn-buildings-with-watercolor-splashes-background_888787.htm
-
-
-
-giải thưởng sao khuê
-
-https://www.freepik.com/free-vector/celebration-background-with-streamers_1538838.htm
-
-
-
-
-truyện thang máy
-
-tryuyejen yoga
-
-
-https://quranandsoul.com/wp-content/uploads/2017/09/Path-tranquility-image.jpg
-
-https://www.google.com.vn/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjRnoq444fcAhUBOo8KHZI4A5oQjRx6BAgBEAU&url=https%3A%2F%2Furban-tranquility-massage.co.uk%2F&psig=AOvVaw2xSozvi-6eLx9pMEeXmnW0&ust=1530873770603005
-
-
-bo cuc nhiep anh
-
-https://www.freepik.com/free-vector/colorful-background-with-geometric-shapes_2525688.htm
